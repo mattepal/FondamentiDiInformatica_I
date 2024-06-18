@@ -1,0 +1,2 @@
+# FondamentiDiInformatica_I
+ 
